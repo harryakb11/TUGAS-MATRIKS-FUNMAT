@@ -1,0 +1,2 @@
+# TUGAS-MATRIKS-FUNMAT
+1. July Arifianto - 17523216 2. Harry Akbar A. - 17523229
